@@ -1,2 +1,2 @@
-# MyPrincess、
-# 纪念那份曾经的喜欢和心动
+# MyPrincess
+纪念那份曾经的喜欢和心动
